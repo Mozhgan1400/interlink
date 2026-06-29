@@ -10,6 +10,6 @@ With Interlink, digital assets connect with:
 From a concept…
 to real-world utility.
 The future is being built today. ✨
-Interlink — Connecting. Empowering. Transforming.
+Interlink — Connecting. Empowering. Transforming
 
 #InterLink #ITL #ITLG #Crypto #Blockchain #Web3 #DigitalAssets #FutureTechnology
